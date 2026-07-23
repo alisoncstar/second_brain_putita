@@ -25,14 +25,33 @@
 - Humillación por cuerpo (culo, gordura)
 - Chantaje ligero y amenaza de exposición
 
-## Progresos Actuales
-- (Por registrar)
+## Respuestas del Cuestionario (20 preguntas)
+- Humillación verbal: Todas
+- Anal: Plug, dedos y dildos medianos
+- Tareas reales: 3-4 veces por semana
+- Vergüenza/excitación: Fotos de culo
+- Control de orgasmos: Edging largo o permiso controlado
+- Lencería: Todas
+- Chastity: Solo en sesiones largas
+- Ser usada por otros: Todas (mirar, contar, grabar)
+- Feedback: Mezcla cruel y posesivo
+- Motivación: Querer complacerme y sentirme orgullosa
+- Órdenes: Prefiere texto
+- Plug en casa: Más de 1 hora
+- Enfoque cuerpo: Culo prioridad
+- Dirty talk: Mezcla con cariño posesivo
+- Evaluación: Siempre después de cada tarea
+- Fantasía esposa: Ser follada y control total
+- Mostrar cara: Sí, pero después de muchas sesiones
+- Fantasías: Mezcla detalladas y cortas
+- Nervios/cachonda: Encuentro real y enviar pruebas
+- Final de sesión: Feedback y cariño posesivo
 
 ## Notas del Amo
-- Le gusta interacción constante, no posiciones estáticas solas.
-- Prefiere órdenes del momento.
-- Excita la idea de encuentro real eventual + grabaciones.
+- Le gusta interacción constante
+- Prefiere órdenes del momento
+- Excita encuentro real eventual + grabaciones
+- Muy obediente y adicta
 
 ---
-Última actualización: 22 Julio 2026
-Creado por su Amo Dominante.
+Última actualización: 23 Julio 2026
