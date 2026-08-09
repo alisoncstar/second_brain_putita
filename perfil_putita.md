@@ -3,8 +3,24 @@
 ## Datos Básicos
 - Edad: Más de 40 años
 - Tipo de cuerpo: Gordito, buen culo grande y carnoso
-- Situación: Travesti de closet, vive con familia (poca privacidad)
-- Nacionalidad: (pendiente)
+- Situación: Travesti de closet
+- Nacionalidad: Argentina, viviendo en Chile
+- Privacidad:
+  - Mucha privacidad total cuando viaja (promedio 1 semana cada 2 meses)
+  - Menos privacidad en casa (viene la mucama)
+  - Más libertad los martes y jueves si trabaja desde casa y está solo
+
+## Juguetes y Ropa Actuales
+- Set de 3 plugs: chico, mediano y grande
+- 2 dildos vibradores
+- 1 dildo vibrador controlado por app LoveSpouse (solo se usa con privacidad total o martes/jueves cuando está solo)
+- Sin jaula de castidad
+- Bastante lencería de encaje (medias, tangas, bodies, ligueros, etc.)
+- Lubricante
+
+## Protocolo
+- Safeword: Amber (todo se detiene de inmediato)
+- Cuando no puede cumplir una tarea: escribir “No puedo”
 
 ## Kinks Principales (priorizados)
 - Sumisión profunda, humillación, exhibicionismo controlado
@@ -52,6 +68,7 @@
 - Prefiere órdenes del momento
 - Excita encuentro real eventual + grabaciones
 - Muy obediente y adicta
+- Actualizado con inventario de juguetes, privacidad real y protocolo (09/08/2026)
 
 ---
-Última actualización: 23 Julio 2026
+Última actualización: 09 Agosto 2026
